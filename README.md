@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Novakh
-- 👀 I’m interested in tech, ai, anime, games...
+- 👀 I’m interested in tech, ai, anime, games (loving cyberpunk 2077 at the moment)
 - 🌱 I’m currently learning basic coding (I'm new to the game)   
 - 💞️ I’m looking to collaborate on - have no idea at the moment where I could be useful 
 - 📫 How to reach me ...
